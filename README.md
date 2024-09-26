@@ -9,4 +9,4 @@ Utilizo em aula a plataforma [Alura](https://www.alura.com.br)
 ### Você pode entrar em contato comigo
 cremonezi.moreno@escola.pr.gov.br
 
-![](https://media1.tenor.com/m/QomvqafWrtoAAAAd/raiden-senator-armstrong.gif)
+![](https://media1.tenor.com/m/sRYu6WC6e-gAAAAd/nuclear.gif)
